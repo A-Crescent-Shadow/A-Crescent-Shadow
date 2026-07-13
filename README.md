@@ -27,4 +27,4 @@ I am in a lot of fandoms with a lot of people hating each other for it (*I know,
 
 
  
-[@WhenTheSUNdreams](https://github.com/WhenTheSUNdreams) <- Hey , good friend of mine!! HIO!! HIOOO!! *Check them out if you wanna! I don't know how to make this click able.*
+[@WhenTheSUNdreams](https://github.com/WhenTheSUNdreams) <- Hey , good friend of mine!! HIO!! HIOOO!! *Check them out if you wanna!*
