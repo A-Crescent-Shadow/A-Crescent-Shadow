@@ -2,7 +2,7 @@ $${\color{#B3D4FF}``\space Hello,\space friend!\space '`}$$
 $${\color{#B3D4FF}\textsf{Shall we start with an introduction?}}$$
 
 
-Call me $${\color{#B3D4FF}Weathergirl}$$ or $${\color{light blue}Crescent!}$$
+Call me $${\color{white}Crescent}$$ or $${\color{yellow}any\space other\space character\space you \space like!}$$
 
 
 I am in a lot of fandoms with a lot of people hating each other for it (*I know, it is painful./silly*) but I'm still thriving here !!
@@ -26,5 +26,12 @@ I am in a lot of fandoms with a lot of people hating each other for it (*I know,
  Ok . . . This repository will be updated sometime.. maybe never.. have a great day and thanks for reading , visitor!!
 
 
+----
  
-[@WhenTheSUNdreams](https://github.com/WhenTheSUNdreams) <- Hey , good friend of mine!! HIO!! HIOOO!! *Check them out if you wanna!*
+[@WhenTheSUNdreams](https://github.com/WhenTheSUNdreams) 
+
+*The Dreaming Sun that Wanders*
+
+----
+
+<- Hey , good friend of mine!! HIO!! HIOOO!! *Check them out if you wanna!*
