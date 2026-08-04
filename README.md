@@ -1,5 +1,16 @@
-$${\color{#B3D4FF}``\space Hello,\space friend!\space '`}$$
-$${\color{#B3D4FF}\textsf{Shall we start with an introduction?}}$$
+$${\color{yellow}``\space Hello,\space friend!\space '`}$$
+$${\color{yellow}\textsf{Shall we start with an introduction?}}$$
+
+<img width="80" height="80" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/30f7c388-7e9c-4889-8b7d-c80e2d646a0b" />
+<img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/e1b29218-23b1-461d-952a-8127b510672f" />
+<img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/dead9d0b-5457-4c92-8176-b9119ff09b5b" />
+<img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/899d0114-d561-47a4-9cfd-3a1afaff0e5c" />
+<img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d3259016-0b3e-4156-a968-eec0552034f6" />
+<img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/0370d271-233b-45f0-9c9f-4a0a3a84fc49" />
+<img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d94b90fd-045a-47f0-bdbf-37c059cb5723" />
+<img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/bc56ff97-a831-4507-8869-217a07a34fe8" />
+<img width="80" height="80" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d3259016-0b3e-4156-a968-eec0552034f6" />
+
 
 
 Call me $${\color{white}Crescent}$$ or $${\color{yellow}any\space other\space character\space you \space like!}$$
@@ -19,6 +30,16 @@ I am in a lot of fandoms with a lot of people hating each other for it (*I know,
 
 ---
 
+<img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/a6fbfd74-4959-4094-8389-9f2d87c20b5d" />
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+<img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/10ddd7a2-5289-4774-adc4-5ea9a328c66e" />
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+<img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/14b91129-61d4-4a12-bd35-fea4de12d69a" />
+
+
+$${\color{yellow}Call\space me\space any\space character\space you\space would\space like\space !}$$ 
+
+
  Problematic people? I'll take my distance, thanks.
  If you wanna share interests with me, would try my best to match your energy! Meeting people like that are so cool!!
 
@@ -34,4 +55,4 @@ I am in a lot of fandoms with a lot of people hating each other for it (*I know,
 
 ----
 
-<- Hey , good friend of mine!! HIO!! HIOOO!! *Check them out if you wanna!*
+Hey , good friend of mine!! HIO!! HIOOO!! *Check them out if you wanna!*
