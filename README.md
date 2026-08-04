@@ -1,3 +1,18 @@
+`Hey viewer! I should tell ya something..`
+
+`This repository is recommended to be viewed in landscape mode,`
+
+`Thank you for your understanding!`
+
+`=)`
+
+----
+
+$${\color{yellow}...\space ♡\space ...}$$
+
+---
+
+
 $${\color{yellow}``\space Hello,\space friend!\space '`}$$
 $${\color{yellow}\textsf{Shall we start with an introduction?}}$$
 
