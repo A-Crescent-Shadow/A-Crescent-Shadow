@@ -42,9 +42,9 @@ I am in a lot of fandoms with a lot of people hating each other for it (*I know,
 ---
 
 <img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/a6fbfd74-4959-4094-8389-9f2d87c20b5d" />
-. . . . . . . . . . . . . . . . . . . 
+. . . . . . . . . . . . . . . .  
 <img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/10ddd7a2-5289-4774-adc4-5ea9a328c66e" />
-. . . . . . . . . . . . . . . . . . . 
+. . . . . . . . . . . . . . . .  
 <img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/14b91129-61d4-4a12-bd35-fea4de12d69a" />
 
 
