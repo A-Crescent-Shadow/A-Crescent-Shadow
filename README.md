@@ -18,7 +18,6 @@ $${\color{yellow}\textsf{Shall we start with an introduction?}}$$
 
 <img width="80" height="80" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/30f7c388-7e9c-4889-8b7d-c80e2d646a0b" />
 <img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/e1b29218-23b1-461d-952a-8127b510672f" />
-<img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/dead9d0b-5457-4c92-8176-b9119ff09b5b" />
 <img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/899d0114-d561-47a4-9cfd-3a1afaff0e5c" />
 <img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d3259016-0b3e-4156-a968-eec0552034f6" />
 <img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/bc56ff97-a831-4507-8869-217a07a34fe8" />
