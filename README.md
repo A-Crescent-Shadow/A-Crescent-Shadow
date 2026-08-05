@@ -21,8 +21,6 @@ $${\color{yellow}\textsf{Shall we start with an introduction?}}$$
 <img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/dead9d0b-5457-4c92-8176-b9119ff09b5b" />
 <img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/899d0114-d561-47a4-9cfd-3a1afaff0e5c" />
 <img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d3259016-0b3e-4156-a968-eec0552034f6" />
-<img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/0370d271-233b-45f0-9c9f-4a0a3a84fc49" />
-<img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d94b90fd-045a-47f0-bdbf-37c059cb5723" />
 <img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/bc56ff97-a831-4507-8869-217a07a34fe8" />
 <img width="80" height="80" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d3259016-0b3e-4156-a968-eec0552034f6" />
 
