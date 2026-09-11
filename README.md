@@ -18,13 +18,7 @@ $${\color{yellow}...\space ♡\space ...}$$
 $${\color{yellow}``\space Hello,\space friend!\space '`}$$
 $${\color{yellow}\textsf{Shall we start with an introduction?}}$$
 
-<img width="80" height="80" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/30f7c388-7e9c-4889-8b7d-c80e2d646a0b" />
-<img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/899d0114-d561-47a4-9cfd-3a1afaff0e5c" />
-<img width="100" height="100" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d3259016-0b3e-4156-a968-eec0552034f6" />
-<img width="100" height="100" alt="yellow-lace-pattern-17461997-removebg-preview" src="https://github.com/user-attachments/assets/bc56ff97-a831-4507-8869-217a07a34fe8" />
-<img width="80" height="80" alt="Pixel_Bild__Cheese-removebg-preview" src="https://github.com/user-attachments/assets/d3259016-0b3e-4156-a968-eec0552034f6" />
-
-
+---
 
 Call me $${\color{white}Crescent}$$ or $${\color{yellow}any\space other\space character\space you \space like!}$$
 
@@ -34,23 +28,25 @@ I am in a lot of fandoms with a lot of people hating each other for it (*I know,
 
 - $${\color{white}Moods\space when\space interacting:}$$
 
-  Ehh, I usually have little to no energy when interacting. But don't worry, I'm a listener most of the time because I fumble with my words..
+  Ehh, I usually have little to no energy when interacting. But don't worry, I'm a listener most of the time because I fumble with my words.. UNLESS you interact with an interest similar to mine! I don't always have low energy, so please don't be afraid to interact with me!
 
-  Cosplayers usually catch my eye both on Ponytown and in Roblox! I may warn ya, I'll follow you guys like a lost puppy/silly
+  Cosplayers usually catch my eye both on Ponytown and in Roblox (but my roblox needs to be on hiatus)! I may warn ya, I'll follow you guys like a lost puppy/joke
 
-  My friend list is unhinged. You will see me with a calm friend group or a chaotic one.. I don't know if there's in between, but they don't bite! 
+  My friend list is unhinged. You will see me with a calm friend group or a chaotic one.. I don't know if there's in between, but they don't bite!  $${\color{blue}They're\space the\space most\space awesome\space people\space I\space have\space ever\space met!}$$
 
 
 ---
 
-<img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/a6fbfd74-4959-4094-8389-9f2d87c20b5d" />
-. . . . . . . .  
-<img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/10ddd7a2-5289-4774-adc4-5ea9a328c66e" />
-. . . . . . . .    
-<img width="120" height="120" alt="anthemis-tinctoria-golden-marguerite-67afb68661421-removebg-preview" src="https://github.com/user-attachments/assets/14b91129-61d4-4a12-bd35-fea4de12d69a" />
 
 
-$${\color{yellow}Call\space me\space any\space character\space you\space would\space like\space !}$$ 
+
+$${\color{yellow}As\space I\space said\space before\space ,\space call\space me\space any\space character\space you\space would\space like\space !}$$ 
+
+>Call me a character you're comfortable with! But please, not a character from a problematic source. Thank you.
+
+>Usually, I am very shy or nervous when interacting with new people. However, I can also be energetic if a sudden event/"theme" is happening.
+
+>PLEASE.. C+H WITH ME IF I'M ALONE :< But if I'm with friends, ask. If I'm with a person that has the Github socials: WhenTheSUNdreams , FOOLSLULLABY , D00MBRINGING , THE-DREAMENDING , you're good to go! That person is freely okay to cuddle/hide with me! 
 
 
  Problematic people? I'll take my distance, thanks.
