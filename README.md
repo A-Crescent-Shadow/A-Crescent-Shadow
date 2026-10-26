@@ -1,12 +1,16 @@
+`* The Tempest's Storyshift Chara?! WHAT-?`
+* [@THE-TEMPIST](https://github.com/THE-TEMPIST)
+
+
 ----
 
-`Hey viewer! I should tell ya something..`
+`* Hey viewer! I should tell ya something..`
 
-`This repository is recommended to be viewed in landscape mode,`
+`* This repository is recommended to be viewed in landscape mode,`
 
-`Thank you for your understanding!`
+`* Thank you for your understanding!`
 
-`=)`
+`* =)`
 
 ----
 
