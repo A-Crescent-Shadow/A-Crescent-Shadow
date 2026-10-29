@@ -1,5 +1,6 @@
-`* The Tempest's Storyshift Chara?! WHAT-?`
+`* The Storyshift Chara of- wait, WHAT-?`
 * [@THE-TEMPIST](https://github.com/THE-TEMPIST)
+* [@piddlesjet](https://github.com/piddlesjet)
 
 
 ----
