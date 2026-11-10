@@ -19,7 +19,7 @@ $${\color{red}*\space let's\space go,\space partner.}$$
 
 $${\color{red}*\space i\space think\space grillby's\space has\space some\space warm\space stock\space today.}$$
 
-$${\color{red}*\space unless\space you\space don't\space mind\space being\space frozen\space in\space snowdin\space like\space a\space snowman?\space =)\space hehe.}$$
+$${\color{red}*\space ...unless\space you\space don't\space mind\space being\space frozen\space in\space snowdin\space like\space a\space snowman?\space =)\space hehe.}$$
 
 <p align="center">
 
