@@ -15,6 +15,20 @@
 
 ----
 
+$${\color{red}*\space let's\space go,\space partner.}$$
+
+$${\color{red}*\space i\space think\space grillby's\space has\space some\space warm\space stock\space today.}$$
+
+$${\color{red}*\space unless\space you\space don't\space mind\space being\space frozen\space in\space snowdin\space like\space a\space snowman?\space =)\space hehe.}$$
+
+<p align="center">
+
+<img width="375" height="375" alt="Untitled75_20261110161306-removebg-preview" src="https://github.com/user-attachments/assets/dfdc9a3b-20c0-469f-baec-40b348d18671" />
+
+</p>
+
+----
+
 $${\color{yellow}...\space ♡\space ...}$$
 
 ---
